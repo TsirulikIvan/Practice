@@ -1,48 +1,48 @@
 # Практика
 
-Ссылка на выполненную работу - [ссылка](https://yadi.sk/d/nh00Xu9lLLTvmg)
+Ссылка на выполненную работу - [ссылка](https://drive.google.com/drive/folders/1dLTIkCqyxNs2oGUU5IokM7irjuLfvtFx?usp=sharing)
 
 ### ИСР 1.1
-[ссылка](https://yadi.sk/i/zpFWk1yjbEXeOA)
+[ссылка](https://drive.google.com/file/d/1myyUA6A9XacRpniUe0FmMz8h5z7v6gq0/view?usp=sharing)
 
 ### ИСР 1.2
-[ссылка](https://yadi.sk/i/9cyBB4iS0RqojA)
+[ссылка](https://drive.google.com/file/d/134MRjbAFwkwG8Zn9hrWh5aEKD9kc2v5H/view?usp=sharing)
 
 ### ИСР 1.3
-[ссылка](https://yadi.sk/i/tmCAXpM2SYCffA)
+[ссылка](https://drive.google.com/file/d/1rRMjgyIkDPscf3NMhYQ9hxn7WI4mqM14/view?usp=sharing)
 
 ### ИСР 1.4
-[ссылка](https://yadi.sk/i/C73cZCj2c8sIAQ)
+[ссылка](https://drive.google.com/file/d/1MziL3nMrDm9pjDc0jOqfDkzs5U8FOfmx/view?usp=sharing)
 
 ### ИСР 1.5
-[ссылка](https://yadi.sk/i/55Lc_-5V0lTJ6Q)
+[ссылка](https://drive.google.com/file/d/11qbD5OzyDSvX8CX3OezG1hjUhcjL91iD/view?usp=sharing)
 
 ### ИСР 1.6
-[ссылка](https://yadi.sk/i/n-XlEYWaTx9zUA)
+[ссылка](https://drive.google.com/file/d/19XygK_9HXvJ1DOxepIztyIABs8jY2z3I/view?usp=sharing)
 
 ### ИСР 1.7
-[ссылка](https://yadi.sk/i/eCmMnUx5dFpwSQ)
+[ссылка](https://drive.google.com/file/d/1n_IBYdxmH0u6i8vwFS1ZTcSiW0dogWK7/view?usp=sharing)
 
 ### ИСР 1.8
-[ссылка](https://yadi.sk/i/u4ugngUuUa8cNw)
+[ссылка](https://drive.google.com/file/d/17VUhrajoHTDci_Yrzqsr6mrX0SgPAVrx/view?usp=sharing)
 
 ### ИСР 1.9
-[ссылка](https://yadi.sk/i/zd6b3KfU7zVPcQ)
+[ссылка](https://drive.google.com/file/d/1KnxVV_18soRbyrNi9gb5aF2R-LgAu5mW/view?usp=sharing)
 
 ### ИСР 1.10
-[ссылка](https://yadi.sk/i/yMdBBPgkYX-Ipg)
+[ссылка](https://drive.google.com/file/d/17VUhrajoHTDci_Yrzqsr6mrX0SgPAVrx/view?usp=sharing)
 
 ### ИСР 1.11
-[ссылка](https://yadi.sk/i/EVEF8SB_iTjirQ)
+![alt text](/ИСР11.jpg)
 
-### ВСР 1.1
-[ссылка](https://yadi.sk/i/7dQG0EDIv0Pj1w)
+### ВСР 2.1
+![alt text](/ВСР21.jpg)
 
-### ВСР 1.2
-[ссылка](https://yadi.sk/i/qv2BwAETXHZbJQ)
+### ВСР 2.2
+[ссылка](https://drive.google.com/file/d/1EycxiAF1nXZcIGmWFtvS-4riVVOJvs-w/view?usp=sharing)
 
-### ВСР 1.3
-[ссылка](https://yadi.sk/i/XaHRim671mtnUw)
+### ВСР 2.3
+[ссылка]()
 
-### ВСР 1.4
-[ссылка](https://yadi.sk/i/YdCi1XIFa-_nuA)
+### ВСР 2.4
+[ссылка]()
