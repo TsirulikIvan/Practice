@@ -42,7 +42,7 @@
 [ссылка](https://drive.google.com/file/d/1EycxiAF1nXZcIGmWFtvS-4riVVOJvs-w/view?usp=sharing)
 
 ### ВСР 2.3
-[ссылка]()
+[ссылка](https://drive.google.com/file/d/1SfdUIvyM-5fFUVs1vNsqQNiBUzhgqruX/view?usp=sharing)
 
 ### ВСР 2.4
 [ссылка]()
