@@ -45,4 +45,4 @@
 [ссылка](https://drive.google.com/file/d/1SfdUIvyM-5fFUVs1vNsqQNiBUzhgqruX/view?usp=sharing)
 
 ### ВСР 2.4
-[ссылка]()
+[ссылка](https://drive.google.com/file/d/1Zy80Q9pOrLN95_UEc_l8GPB-fShMrVLS/view?usp=sharing)
