@@ -46,3 +46,8 @@
 
 ### ВСР 2.4
 [ссылка](https://drive.google.com/file/d/1Zy80Q9pOrLN95_UEc_l8GPB-fShMrVLS/view?usp=sharing)
+
+### Отчет
+[ссылка](https://drive.google.com/file/d/1nYGck_lU5169iRJiTzRVqEEE59Tzr8Qk/view?usp=sharing)
+
+
